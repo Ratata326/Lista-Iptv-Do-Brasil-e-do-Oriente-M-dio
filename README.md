@@ -1,1 +1,0 @@
-# Lista-Iptv-Do-Brasil-e-do-Oriente-M-dio
